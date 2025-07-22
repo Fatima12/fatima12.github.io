@@ -1,2 +1,2 @@
-# fatima12.github.io
-My personal webpage
+Amruta Pai Website
+Website Credits https://jonbarron.info
